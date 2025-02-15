@@ -2,11 +2,11 @@
 
 But seriously, we play basketball.
 
-The Züri Bricklayers are a basketball group that plays basketball every
-Monday/Wednesday from 8-10 pm. We play at Kantonsschule Enge. Map
-[link](https://t.ly/dD0CT).
+The Züri Bricklayers are a casual, international
+basketball group that plays for fun. We meet most Mondays and
+Wednesdays from 8-10 pm (see the calendar for exact details).
+We play at Kantonsschule Enge. Map [link](https://t.ly/dD0CT).
 
-We are a casual, international group that mainly gets together to play for fun.
 If you are interested in joining, please email either `tatp22` or
 `zueribricklayers` `[symbol]` `gmail.com`.
 
